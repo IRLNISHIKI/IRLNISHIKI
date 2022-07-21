@@ -6,6 +6,6 @@ JOHN(NY) OR **DANTE!!** ![snip](https://cdn.discordapp.com/emojis/87343231240518
 
 
 
-<img align="left" width="750" src="https://cdn.discordapp.com/attachments/976628786542026774/976884297392873493/unknown.png">
+<img align="left" width="100" src="https://cdn.discordapp.com/attachments/976628786542026774/976884297392873493/unknown.png">
 
 
